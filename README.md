@@ -1,2 +1,2 @@
 # hamza-
-https://morocco.blsspainvisa.com/spanish/index.php
+https://algerie.blsspainvisa.com/spanish/index.php
